@@ -20,7 +20,7 @@ Until her identity was revealed to be false, Birdperson was a devoted love inter
 [[File:Pheonixperson.jpg|thumb|right|250px|Birdperson revived as "Phoenixperson". ]]{{Quote|I am Phoenixperson.|Birdperson after being revived as Phoenixperson|The Rickshank Rickdemption}}
 In the ending credits for [[The Rickshank Rickdemption]], Tammy and the [[Gromflomites]] resurrected Birdperson as a cyborg and renamed him Phoenixperson. Although Tammy wanted his name to be Cyberbird, she didn't push hard enough to make that official. She settled on Phoenixperson and took off with him.
 
-## Appearance 
+## Appearance
 [[File:BirdpersonTransparent.png|left|160px]]
 [[File:Phoenixperson.transparent.png|right|160px]]
 Birdperson is a tall humanoid with bird-like features. He has two giant eagle wings with gray on the ends, that drape down along his back like a cape. He also wears yellow gloves, a red skirt, and yellow boots. He has a green, feathery helmet with white polka dots. The tuft of feathers on his head ruffles when he moves.
@@ -35,8 +35,6 @@ Birdperson is very wise, having experienced so much about the universe with his 
 Birdperson and Rick are life long friends, having done lots of things together. Birdperson attended Rick's party in the episode [[Ricksy Business]]. He showed concern for Rick's well being, telling Morty that "Wubba Lubba Dub Dub" means "I am in great pain, please help me." He invited Rick to his wedding in the episode [[The Wedding Squanchers]]. In the same episode, Rick was shown to be very torn apart, when he saw Birdperson die.
 ### [[Morty Smith]]
 Birdperson and Morty are fond acquaintances of each other. Birdperson explained Rick's catchphrase to Morty in the episode [[Ricksy Business]], and offered him his advice. He also nursed Morty back to health when he found him wounded in the episode [[Get Schwifty]]. In that same episode, Birdperson also serves as a form of guidance for Morty, bestowing a lot of wisdom on him and explaining to him why he should consider putting his faith in Rick Sanchez.
-### [[Tammy Gueterman]]
-Birdperson and Tammy fell in love with each other in the episode [[Ricksy Business]]. In the episode [[Get Schwifty]], it was revealed that the two of them have since lived in the same house together. In the episode [[The Wedding Squanchers]], they wed, but it turned out that Tammy was an undercover agent who married Birdperson as a front to catch him and all the other criminals in the room, meaning that all her feelings for him were fake. However, she does revive him at the end of The Rickshank Rickdemption, implying that she really does love him.
 ### [[Squanchy]]
 Birdperson and Squanchy have apparently also been friends for a long time. In the episode [[Get Schwifty]] it was shown that when they were much younger, he, Birdperson, and Rick, started up a band together, called [[The Flesh Curtains]]. Squanchy was also honored to hold Birdperson and Tammy's wedding on his [[Planet Squanch|home planet]].
 ### [[Beth Smith]]
