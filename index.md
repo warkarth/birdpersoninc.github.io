@@ -30,6 +30,7 @@ Birdperson is a tall humanoid with bird-like features. He has two giant eagle wi
 Birdperson is very wise, having experienced so much about the universe with his best friend, [[Rick Sanchez|Rick]]. He offers well-meaning advice to anyone willing to listen to him, like [[Morty Smith|Morty]]. He is also very nice, although at times he can be perceived as tedious, most notably to [[Beth Smith|Beth]], because of his monotone voice, limited facial expressions, and scarce bodily movement.
 
 ## Relationships
+Changing relationship to founders
 
 ### [[Rick Sanchez]]
 Birdperson and Rick are life long friends, having done lots of things together. Birdperson attended Rick's party in the episode [[Ricksy Business]]. He showed concern for Rick's well being, telling Morty that "Wubba Lubba Dub Dub" means "I am in great pain, please help me." He invited Rick to his wedding in the episode [[The Wedding Squanchers]]. In the same episode, Rick was shown to be very torn apart, when he saw Birdperson die.
