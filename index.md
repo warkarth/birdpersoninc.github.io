@@ -2,7 +2,7 @@
 
 He is an old friend of Rick's and has seemingly known Morty since he was a baby. He attends Rick's party looking for a new mate after ending his soul-bond with his previous spirit-partner. At the end of the episode, he gets back in the saddle with one of Summer's high school friends, Tammy.
 
-
+probando para Fork
 ## Biography
 Birdperson first appears in [[Ricksy Business]], where he attends Rick's party and hooks up with Summer's friend, Tammy. He is also one of the very few party-goers who remains behind to help clean up, although he may have just been waiting for Tammy to be ready to leave.
 
